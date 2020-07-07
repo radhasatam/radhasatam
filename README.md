@@ -23,9 +23,6 @@ i like to paint :)
 
 [Twitter](https://twitter.com/radhasatam) | [LinkedIn](https://www.linkedin.com/in/radhasatam/) | [Behance](https://www.behance.net/radhasatam)
 
-Have a great day!
-![Insert Doggo Gif](https://giphy.com/gifs/4Zo41lhzKt6iZ8xff9)
-
 
 <!--
 **radhasatam/radhasatam** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
