@@ -10,9 +10,7 @@ vue, react native, hasura
 any open source projects that interest me
 - 💬 ask me about:
 programming, js, react, life, reddit
-- 📫 how to reach me:
-radha.satam@gmail.com
-@radhasatam
+- 📫 how to reach me: @radhasatam
 - 😄 pronouns:
 She / Her
 - ⚡ fun fact:
