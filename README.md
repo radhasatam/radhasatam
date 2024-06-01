@@ -19,7 +19,7 @@ i like to paint :)
 
 [Thoughts](https://thoughts.radhasatam.com/) | [Portfolio](https://radhasatam.com/)
 
-[Twitter](https://twitter.com/radhasatam) | [LinkedIn](https://www.linkedin.com/in/radhasatam/) | [Behance](https://www.behance.net/radhasatam)
+[Twitter](https://x.com/_radha___) | [LinkedIn](https://www.linkedin.com/in/radhasatam/) | [Behance](https://www.behance.net/radhasatam)
 
 
 <!--
